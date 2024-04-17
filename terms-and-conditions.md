@@ -38,7 +38,7 @@ You acknowledge that you have read this Agreement and agree to all its terms and
 
 ## 7. Contacting us
 If you have any questions, concerns, or complaints regarding this Agreement, we encourage you to contact us using the details below:
-## hr@ambaokrishikutumb.com 
-## +91 6268 645 010
+ hr@ambaokrishikutumb.com 
+ +91 6268 645 010
 ## This document was last updated on April 17, 2024.
 
